@@ -1,3 +1,1 @@
 - 👋 Hi, I’m esssios
-- 👀 a front-end developer and interested in web3
-- 📫 jwjwjw1688@gmail.com
